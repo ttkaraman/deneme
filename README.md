@@ -1,0 +1,2 @@
+# deneme
+Github dersi projesi
