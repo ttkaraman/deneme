@@ -11,3 +11,11 @@ r
 d
 e
 s
+iimis bu 
+s
+e
+v
+d
+i
+m
+
